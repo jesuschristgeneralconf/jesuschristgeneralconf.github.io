@@ -4,6 +4,8 @@ This is **NOT** an official site of *The Church of Jesus Christ of Latter-day Sa
 
 #### Questions answered from April 2023 General Conference of The Church of Jesus Christ of Latter-day Saints
 
+There are 161 questions documented here.
+
 **Abraham had some pretty awesome blessings. Is there any way I can get those?**<br>
 - [Sunday Morning](https://www.churchofjesuschrist.org/study/general-conference/2023/04/sunday-morning-session?lang=eng)<br>
 - Kazuhiko Yamashita<br>
@@ -568,7 +570,7 @@ This is **NOT** an official site of *The Church of Jesus Christ of Latter-day Sa
 - [Saturday Afternoon](https://www.churchofjesuschrist.org/study/general-conference/2023/04/saturday-afternoon-session?lang=eng)<br>
 - Dieter F. Uchtdorf<br>
 
-**What should I fill my buckete list with?**<br>
+**What should I fill my bucket list with?**<br>
 - [Sunday Afternoon](https://www.churchofjesuschrist.org/study/general-conference/2023/04/sunday-afternoon-session?lang=eng)<br>
 - Ronald A. Rasband<br>
 
