@@ -1,3 +1,9 @@
+This is **NOT** an official site of *The Church of Jesus Christ of Latter-day Saints*. Just a useful tool for those who want to learn what was talked about during the most recent General Conference. 
+
+### [Learn what General Conference is at this link.](https://www.churchofjesuschrist.org/learn/general-conference?lang=eng)
+
+#### Questions answered from April 2023 General Conference of The Church of Jesus Christ of Latter-day Saints
+
 **Abraham had some pretty awesome blessings. Is there any way I can get those?**<br>
 - [Sunday Morning](https://www.churchofjesuschrist.org/study/general-conference/2023/04/sunday-morning-session?lang=eng)<br>
 - Kazuhiko Yamashita<br>
